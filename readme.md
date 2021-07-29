@@ -1,0 +1,1 @@
+Lemonade is a sweetened lemon-flavored beverage. There are varieties of lemonade found throughout the world. It is traditionally a homemade drink using lemon juice, water, and a sweetener such as cane sugar, simple syrup or honey.
